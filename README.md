@@ -1,38 +1,17 @@
 # Orthopedic-Spine-Center-Dr.-Jamie-Gottlieb
-Gottlieb Spine is an advanced orthopedic spine surgery center in Irving, Texas. 
-Gottlieb Spine is an advanced spine surgery center in Irving, Texas. Led by best orthopedic surgeon Dr. Jamie Gottlieb, our spine specialists deliver top-notch care and individualized attention to every patient. We specialize in minimally invasive techniques and advanced surgical treatments to treat complex chronic and degenerative spine-related conditions such as spinal stenosis and ongoing neck and lower back pain. 
-
-Orthopedic Spine Center takes an integrative and multidisciplinary approach, combining multiple specialties, preventive, nonsurgical rehabilitation, and orthopedic surgery to alleviate your back and neck pain under one roof. 
-
-One of the most distinguished and experienced orthopedic spine doctors in Taxes provides orthopedic care to everyone, regardless of age, gender, and specific spinal conditions. Our spinal surgeons use an evidence-based and time-tested approach to spine care, offering our surgical patients honest and open communication as a base for trusted doctor-patient relationships.
-
-Our spine center is affiliated with the University of Texas Southwestern Medical Center, the most prestigious surgery center in Texas, ranked as one of the 20 best hospitals in the nation.
-
-The goal of our center is to effectively relieve symptoms of various spinal health issues, improve patients' health and well-being, and help them enjoy a pain-free life. Call  Orthopedic Spine Center today to schedule a consultation or learn more about our outstanding practice.
-
-Our Services:
-
-Spinal surgery
-
-Cervical disc replacement
-
-Back pain treatment near me
-
-Neck pain treatment
-
-Sciatica treatment
-
-Herniated disc treatment
-
-Minimally invasive sacroiliac joint fusion surgery
-
-Lumbar decompression surgery
-
-Spinal reconstruction surgery
-
-Revision spine surgery
-
-Scoliosis surgery
+<p>Gottlieb Spine is an advanced&nbsp;spine surgery center&nbsp;in Irving, Texas. Led by&nbsp;<a href="https://gottliebspine.com/best-orthopedic-spine-surgeon-irving-tx/">trusted orthopedic surgeon</a>&nbsp;Dr. Jamie Gottlieb, our spine specialists deliver top-notch care and individualized attention to every patient. We specialize in minimally invasive techniques and advanced surgical treatments to treat complex chronic and degenerative spine-related conditions such as spinal stenosis and ongoing neck and lower back pain.&nbsp;<br><br><a href="https://www.google.com/maps?cid=2813689387035765469">Orthopedic Spine Center</a><span>&nbsp;</span>takes an integrative and multidisciplinary approach, combining multiple specialties, preventive, nonsurgical rehabilitation, and orthopedic surgery to alleviate your back and neck pain under one roof.&nbsp;<br><br>One of the most distinguished&nbsp;and experienced orthopedic spine doctors in Taxes provides orthopedic care to everyone, regardless of age, gender, and specific spinal conditions. Our spinal surgeons use an evidence-based and time-tested approach to spine care, offering our surgical patients honest and open communication as a base for trusted doctor-patient relationships.<br><br>Our<span>&nbsp;</span><a href="https://gottliebspine.com/">spine center</a><span>&nbsp;</span>is affiliated with the University of Texas Southwestern Medical Center, the most prestigious surgery center in Texas, ranked as one of the 20 best hospitals in the nation.<br><br>The goal of our center is to effectively relieve symptoms of various spinal health issues, improve patients' health and well-being, and help them enjoy a pain-free life. Call &nbsp;Orthopedic Spine Center&nbsp;today to schedule a consultation or learn more about our outstanding practice.</p>
+<p><strong>Our Services:</strong></p>
+<p><a href="https://gottliebspine.com/procedures/spine-surgery/">Spinal surgery</a></p>
+<p>Cervical disc replacement</p>
+<p><a href="https://gottliebspine.com/conditions/back/">Back pain treatment near me</a></p>
+<p>Neck pain treatment</p>
+<p>Sciatica treatment</p>
+<p>Herniated disc treatment</p>
+<p>Minimally invasive sacroiliac joint fusion surgery</p>
+<p><a href="https://gottliebspine.com/procedures/decompression-surgery/"><span data-sheets-root="1">Lumbar decompression back surgery</span></a></p>
+<p>Spinal reconstruction surgery</p>
+<p>Revision spine surgery</p>
+<p>Scoliosis surgery</p>
 
 Working Hours :
 
@@ -66,14 +45,6 @@ Hackberry Creek, Las Colinas, Mandalay Place, Broadmoor Hills, Cottonwood Valley
 
 75038, 75039, 75063
 
-Driving Directions To The Orthopedic Spine Center: Dr. Jamie Gottlieb:
-from Irving: https://maps.app.goo.gl/nQxkEJ7Va6bpCyNg9 
-
-from Plano: https://maps.app.goo.gl/JVmmd6MMQqNZJnP96 
-
-from Garland: https://maps.app.goo.gl/aP8JRrwRFHXUf5796 
-
-from Arlington: https://maps.app.goo.gl/ypf2XmuZmqhBR9878 
 
 Social links:
 
