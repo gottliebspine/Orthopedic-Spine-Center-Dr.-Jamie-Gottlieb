@@ -68,8 +68,11 @@ Hackberry Creek, Las Colinas, Mandalay Place, Broadmoor Hills, Cottonwood Valley
 
 Driving Directions To The Orthopedic Spine Center: Dr. Jamie Gottlieb:
 from Irving: https://maps.app.goo.gl/nQxkEJ7Va6bpCyNg9 
+
 from Plano: https://maps.app.goo.gl/JVmmd6MMQqNZJnP96 
+
 from Garland: https://maps.app.goo.gl/aP8JRrwRFHXUf5796 
+
 from Arlington: https://maps.app.goo.gl/ypf2XmuZmqhBR9878 
 
 Social links:
@@ -83,8 +86,6 @@ https://www.linkedin.com/company/gottlieb-orthopedic-spine-surgery-center/
 https://www.instagram.com/spine__doc
 
 https://www.youtube.com/@GottliebOrthopedicSpineSurgery
-
-https://www.tumblr.com/gottliebspine
 
 https://www.pinterest.com/gottliebspine/
 
